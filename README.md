@@ -1,4 +1,4 @@
-# Fujii Kaze – Hachikō
+# 藤井 風 – Hachikō
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
